@@ -3,7 +3,7 @@ Java program to obtain sessionals from mec.ac.in
 
 
 
-Download now: http://d-h.st/PvlS
+Download now: http://sh.st/jBNJJ
 
 
 
